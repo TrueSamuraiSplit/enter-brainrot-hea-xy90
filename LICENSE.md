@@ -1,4 +1,4 @@
-
+new blade ball Script is the best blade ball Script, featuring auto-collect and fly. Safe and powerful for all your needs.
 
 
 
